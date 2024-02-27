@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @fujlk0
+- 👀 I’m interested in trucks
+- 🌱 I’m currently learning proffesional trucking
+- 💞️ I’m looking to collaborate on trucking
+- 📫 How to reach me - firstly you need a truck
+- 😄 Pronouns: huuuuh?
+- ⚡ Fun fact: i love trucking
