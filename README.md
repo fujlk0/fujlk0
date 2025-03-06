@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning proffesional trucking
 - 💞️ I’m looking to collaborate on trucking
 - 📫 How to reach me - firstly you need a truck
-- 😄 Pronouns: huuuuh?
+- 😄 Pronouns: none
 - ⚡ Fun fact: i love trucking
